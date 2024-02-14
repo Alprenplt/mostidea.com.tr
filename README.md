@@ -1,1 +1,1 @@
-Mostidea Yazılım Websitesi  mostidea.com.tr
+Mostidea Yazılım Websitesi https://mostidea.com.tr/
